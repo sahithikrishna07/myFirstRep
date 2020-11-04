@@ -1,1 +1,1 @@
-04th Nov, 2020- Thursday
+04th Nov, 2020- Wednesday
